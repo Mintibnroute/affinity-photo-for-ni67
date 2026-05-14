@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Affinity Photo for macOS automation with advanced Affinity Photo for macOS Automation | masking tools + vector tools. Featuring masking tools and vector tools,
 
 
 
